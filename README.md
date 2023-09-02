@@ -1,4 +1,4 @@
-<img src="https://raw.githubusercontent.com/mashacore/mashacore/main/4z1pcc0gpbv51.jpg" />
+<img src="https://raw.githubusercontent.com/mashacore/mashacore/main/4z1pcc0gpbv51.jpg" height="128" />
 
 ### ima progammer 💙💜💖
 
