@@ -1,4 +1,4 @@
-<img src="https://media.discordapp.net/attachments/706186438080987168/1025908220583223296/blahaj.gif" />
+<img src="https://raw.githubusercontent.com/mashacore/mashacore/main/4z1pcc0gpbv51.jpg" />
 
 ### ima progammer 💙💜💖
 
