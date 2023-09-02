@@ -1,4 +1,4 @@
-<img src="https://media.discordapp.net/attachments/706186438080987168/1025908220583223296/blahaj.gif" width="min" />
+<img src="https://media.discordapp.net/attachments/706186438080987168/1025908220583223296/blahaj.gif" />
 
 ### ima progammer 💙💜💖
 
